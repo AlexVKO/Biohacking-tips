@@ -5,7 +5,7 @@
 
 We'll not mention to to have daily exercices and prevent fast food because its obvious eh? :D
 
-`Let's join our knowledged to evolve with a better life, helthy and performance.`
+`Let's join our knowledge to evolve with a better life, healthy and performance..`
 
 ### Nootropics
 ```
