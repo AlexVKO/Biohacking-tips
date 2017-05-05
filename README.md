@@ -35,7 +35,7 @@ Makes you focus on only ONE task at a time for a short interval repeated over an
 Bonus: It also blocks out all the websites which distract you during these time frames e.g. Facebook
 ```
 
-### [Brain.FM](https://www.brain.fm/) or [coffitivity.com](coffitivity.com)
+### [Brain.FM](https://www.brain.fm/) or [coffitivity.com](coffitivity.com) or [noisli.com](https://www.noisli.com/)
 ```
 To keep it short and sweet, we have different brain waves responsible for different 
 things (e.g. recovery, focus, creativity, decision making etc).  
