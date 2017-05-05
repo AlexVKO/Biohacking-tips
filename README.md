@@ -70,7 +70,7 @@ NOT stimulated.
 
 This is why going for walks, getting outside, having a shower, napping and stepping away from constantly ‘doing’ 
 WILL help you overcome problems/issues in your business.  Why do you think your best ideas come to you when you 
-sleep/shower or in random situations…think Einstein and the theory of gravity coming to him under a tree…..well done Einstein ;)
+sleep/shower or in random situations…think Newton and the theory of gravity coming to him under a tree…..well done Isaac ;)
 ```
 
 ### Minimise Sugar
